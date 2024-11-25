@@ -9,7 +9,7 @@ Welcome to the **LokLok App** repository! LokLok is a one-stop entertainment sol
 
 LokLok App is an entertainment application designed to offer seamless streaming of premium content. With its vast library and user-friendly interface, LokLok caters to movie buffs, TV enthusiasts, and anyone looking for a top-notch entertainment experience.
 
-# 👉 👉 👉Download Here: [Pikashow APK](https://cineplayapk.com/)
+# 👉 👉 👉Download Here: [Loklok APK](https://cineplayapk.com/)
 ---
 
 ## ✨ Key Features
